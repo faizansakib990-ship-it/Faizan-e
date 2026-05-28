@@ -1,0 +1,1 @@
+please online gaming app gan vagaira har chij har EK gan character real har ek player mike on karke bol sakte hain aur har ek player apna apna item bilkul saste mein le sakte hain diamond wala system bilkul nahin sirf Indian rupiece
